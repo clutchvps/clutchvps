@@ -34,9 +34,9 @@
 
 ## 📞 Contact & Support
 
-- 💬 Join our [Discord](https://discord.gg/clutchvps)
-- 📩 Email us: support@clutchvps.no
-- 🌐 Visit our site: [https://clutchvps.no](https://clutchvps.no)
+- 💬 Join our [Discord](https://discord.gg/yHkAmde6Rw)
+- 📩 Email us: clutchvps@jsinc.eu
+- 🌐 Visit our site/website chat support: [https://clutchvps.no](https://clutchvps.no)
 
 ---
 
